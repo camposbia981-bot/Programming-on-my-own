@@ -1,4 +1,4 @@
 # Programming-on-my-own
 Profile in process...just studyng alone,failing sometimes,trying a lot,and sometimes getting it right!
 
-![Spectrocat](https://i.pinimg.com/1200x/29/7d/8c/297d8c07f027d37699e4a1fb085a7f25.jpg)
+![Spectrocat](https://i.pinimg.com/736x/e7/dc/d7/e7dcd73d308c06e2dedec0c4dc14ba5d.jpg)
